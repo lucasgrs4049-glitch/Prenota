@@ -1,1 +1,1 @@
-# Prenota
+# Todos os direitos reservados
